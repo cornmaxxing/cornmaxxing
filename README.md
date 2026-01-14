@@ -1,23 +1,9 @@
-## the it the it the it
-
-![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
+![1000013642](https://github.com/user-attachments/assets/308874b9-ce2c-47af-a099-59212c5f7597)
 
 
-Boiiii I'm so tuff 😹✌️✌️
+![1000013663](https://github.com/user-attachments/assets/5cfc484c-e94e-4b2f-af29-ea0e1e38f197)
 
-I lobe my wife 🫀 
 
-<!--
-**cornmaxxing/cornmaxxing** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤ︵ 𝗺𝗮𝘁𝗰𝗵𝗶𝗻𝗴 𝗿𝗲𝗮𝗱𝗺𝗲𝘀 𝘄𝗶𝘁𝗵ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝗴𝗮𝗺𝗯𝗹𝗲𝗴𝗵𝗼𝘀𝘁 𝗺𝘆 𝗽𝗮𝗿𝘁𝗻𝗲𝗿 <𝟯
