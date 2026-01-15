@@ -8,4 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-get online on pt or i kms
+whyy...s. ponytown is booring
