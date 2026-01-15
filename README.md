@@ -3,9 +3,12 @@
 
 ![1000013663](https://github.com/user-attachments/assets/fffc7b0f-160b-4f63-83bb-8ea8c02b0b9a)
 
+![your profile views delete if you want btw](https://komarev.com/ghpvc/?username=cornmaxxing&color=FFC4E4&style=flat)
+
 
 ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
-![1000012978](https://github.com/user-attachments/assets/91e4f155-458a-4e79-b3c7-dd55c9910ebd)
+![tiaa_putted_these:3](https://github.com/user-attachments/assets/91e4f155-458a-4e79-b3c7-dd55c9910ebd)
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
