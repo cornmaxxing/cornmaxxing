@@ -7,4 +7,4 @@ Boiiii I'm so tuff 😹✌️✌️
 
 I lobe my wife 🫀 
 
-sshiggles I'm nonchalant 🙄 oh my god thats so funny wait😂😂😂
+
