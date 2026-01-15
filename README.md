@@ -1,3 +1,6 @@
+![1000013688](https://github.com/user-attachments/assets/af0a25bd-f36e-4d6f-b838-7a827d5a6a49)
+
+
 ![1000013642](https://github.com/user-attachments/assets/308874b9-ce2c-47af-a099-59212c5f7597)
 
 
@@ -7,7 +10,7 @@
 ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 ![tiaa_putted_these:3](https://github.com/user-attachments/assets/91e4f155-458a-4e79-b3c7-dd55c9910ebd)
 
-puts phone inside toilet and flushes
+noo come back
 
 ㅤ ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
