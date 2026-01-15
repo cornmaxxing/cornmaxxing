@@ -9,7 +9,7 @@
 ![tiaa_putted_these:3](https://github.com/user-attachments/assets/91e4f155-458a-4e79-b3c7-dd55c9910ebd)
 
 ㅤㅤㅤㅤㅤㅤALL THESE THINGS ARE OVERSTIMMGIN ME HELP UELP HELLP TAKE THEM OFF NAKE MY PROFULE NAKED AGAIN
-ㅤ????? STOPㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalso stop mentioning yourself everywjere selfish bitch 🙄🙄🙄ㅤㅤㅤ
+ㅤ????? STOP guys aurora is being stupidㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤalso stop mentioning yourself everywjere selfish bitch 🙄🙄🙄ㅤㅤㅤ
 WHAT IS THAT SUPPOSED TI MEANㅤ
 
 ꒰⁠ [pronouns.cc](https://pronouns.cc/@ROTGIRL) ꒱⁠
