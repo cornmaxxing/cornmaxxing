@@ -7,4 +7,4 @@ Boiiii I'm so tuff 😹✌️✌️
 
 I lobe my wife 🫀 
 
-what you do is wasted talent for me idrc do whatever u want to then.
+sshiggles I'm nonchalant 🙄
