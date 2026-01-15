@@ -8,6 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-throws up on you lovingly,,, soon let me just do the dishes
-your starting to dissapoint me whatever i sleep after 8 mins lalala
-. ok i sleep after 10 mins i may not respond ig
+we are charlie kirk phonk
