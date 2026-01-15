@@ -8,5 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-okay. you want to vent right. ok. go ahead,,, I'll join and stuff but I'm not up for talking,, because I tired 
-k ill join when u join thenn
+throws up on you lovingly,,, soon let me just do the dishes
