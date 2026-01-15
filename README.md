@@ -6,3 +6,4 @@
 Boiiii I'm so tuff 😹✌️✌️
 
 I lobe my wife 🫀 
+oh ok
