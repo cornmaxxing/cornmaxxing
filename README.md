@@ -8,5 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-whyy...s. ponytown is booring
-İdk i wanna vent or talk or somethiny
+okay. you want to vent right. ok. go ahead,,, I'll join and stuff but I'm not up for talking,, because I tired
