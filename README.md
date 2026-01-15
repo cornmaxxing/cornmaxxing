@@ -8,8 +8,7 @@
 ![tetoteteto](https://github.com/user-attachments/assets/24acbcff-4384-4ba0-a8f4-31d143ac581b)
 ![tiaa_putted_these:3](https://github.com/user-attachments/assets/91e4f155-458a-4e79-b3c7-dd55c9910ebd)
 
-ㅤㅤㅤㅤㅤㅤMY NAME IS CUM !!!! LOSER
-im breaking up with y🎉🎉🎉🎉🎉
+ㅤㅤㅤㅤㅤㅤOkay THEN!! IRM LEABING
 
 ꒰⁠ [pronouns.cc](https://pronouns.cc/@ROTGIRL) ꒱⁠
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
