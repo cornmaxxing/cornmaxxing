@@ -9,6 +9,7 @@
 ![tiaa_putted_these:3](https://github.com/user-attachments/assets/91e4f155-458a-4e79-b3c7-dd55c9910ebd)
 
 bromosito hang out with your friends
+no bro im going to goon for you tjats it
 
 
 ꒰⁠ [pronouns.cc](https://pronouns.cc/@ROTGIRL) ꒱⁠
