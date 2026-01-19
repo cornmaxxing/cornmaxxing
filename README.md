@@ -8,4 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-we are charlie kirk phonk
+quitting pt soon,, idk what to play tho 
