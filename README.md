@@ -8,4 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-quitting pt soon,, idk what to play tho 
+wait my art is peak 😧 guus guys give me inspiration 🥰🥰🥰
