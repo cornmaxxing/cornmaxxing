@@ -8,4 +8,4 @@ Boiiii I'm so tuff 😹✌️✌️
 I lobe my wife 🫀 
 
 
-wait my art is peak 😧 guus guys give me inspiration 🥰🥰🥰
+quit pt yep yep. might come back in like 4 years
